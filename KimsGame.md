@@ -2,10 +2,9 @@
 
 Set out the items on the grid in the following order:
 
- First-aid kit | Flashlight | Whistle
-Sun protection | Trail food | Water bottle
-     Batteries | Book       | Rock
-
+     First-aid kit 	 	Flashlight		Whistle
+     Sun protection		Trail food		Water bottle
+     Batteries 	 		Book 	 		Rock
 
 On "GO" uncover the items for 1 minute. The scouts are not to write down anything during this period but are asked to remember what items there are.
 
