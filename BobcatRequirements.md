@@ -1,0 +1,26 @@
+1 - Learn and say the Scout Oath, with help if needed.
+"On my honor I will do my best
+To do my duty to God and my country 
+and to obey the Scout Law; 
+To help other people at all times; 
+To keep myself physically strong, 
+mentally awake, and morally straight." 
+
+ 		
+2 - Learn and say the Scout Law, with help if needed.
+"A Scout is Trustworthy, Loyal, Helpful, Friendly, Courteous, Kind, Obedient, Cheerful, Thrifty, Brave, Clean, and Reverent." 
+
+ 		
+3 - Show the Cub Scout sign. Tell what it means.
+Make the sign with your right hand and with your arm held straight up. The two fingers stand for two parts of the Promise - "to help other people" and "to obey." They look like a wolf's ears ready to listen to Akela. Give the Cub Scout Sign when you say the Scout Oath or the Scout Law. 
+
+ 		
+4 - Show the Cub Scout handshake. Tell what it means.
+Using your right hand, place your first two fingers along the inside of the other boy's wrist. This means that you help and that you obey the law of the Pack. 
+
+ 		
+5 - Say the Cub Scout motto. Tell what it means.
+"Do Your Best" 
+
+ 		
+6 - Show the Cub Scout salute. Tell what it 
